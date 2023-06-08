@@ -1,1 +1,1 @@
-Away till the New Year. Merry Christmas.
+On hiatus.
