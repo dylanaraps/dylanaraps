@@ -1,1 +1,1 @@
-Coming very soon.
+https://wild.gr
